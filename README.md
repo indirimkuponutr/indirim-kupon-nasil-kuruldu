@@ -1,0 +1,1 @@
+# indirim-kupon-nasil-kuruldu
